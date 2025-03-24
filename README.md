@@ -162,7 +162,7 @@ You can:
 
 Made with ❤️ by Mustansar  
 📧 pmustansar@gmail.com  
-🔗 [LinkedIn](https://linkedin.com/in/yourprofile)
+🔗 [LinkedIn](https://www.linkedin.com/in/mustansar-7aa7a416a/)
 
 ---
 
