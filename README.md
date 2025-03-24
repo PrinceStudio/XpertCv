@@ -160,7 +160,7 @@ You can:
 
 ## 👨‍💻 Author
 
-Made with ❤️ by [Your Name]  
+Made with ❤️ by Mustansar  
 📧 pmustansar@gmail.com  
 🔗 [LinkedIn](https://linkedin.com/in/yourprofile)
 
